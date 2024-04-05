@@ -2,7 +2,7 @@
 - 👀 I’m interested in DAta Analyst
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to 
-- 📫 How to reach me ...
+- 📫 How to reach me: georgemaniraj@gmail.com/9791546565
 - 😄 Pronouns:He/ George
 - ⚡ Fun fact:
 
